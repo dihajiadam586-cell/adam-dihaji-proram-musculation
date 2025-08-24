@@ -1,1 +1,1 @@
-# adam-dihaji-proram-musculation
+# adam-dihaji-progam-musculation
